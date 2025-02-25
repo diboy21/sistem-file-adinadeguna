@@ -1,0 +1,2 @@
+# sistem-file-adinadeguna
+preview
